@@ -1,1 +1,0 @@
-# qa_u22_andrii_rozgon
